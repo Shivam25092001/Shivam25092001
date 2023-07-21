@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **ss056989@gmail.com**
 
+- 🚴🏼‍♂️ Know More about me [**Resume**](https://drive.google.com/file/d/1Z5TVxFNUc84d6jwBStJ8jmihpMJfM0yw/view?usp=sharing)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/shivam-s-7b8625211" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="shivam-s-7b8625211" height="30" width="40" /></a>
